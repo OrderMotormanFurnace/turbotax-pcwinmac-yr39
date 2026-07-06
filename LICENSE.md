@@ -1,4 +1,4 @@
-# 
+# Oficial TurboTax extensiones para Mac OS | Élite TurboTax extensiones para PC Windows. Con seguimiento en tiempo real y verificación de errores — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
